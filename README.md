@@ -14,3 +14,15 @@
 
 ディズニー
 ![image](https://user-images.githubusercontent.com/112539110/196096662-b45348f2-e5f4-474f-9c24-48e39e42cf4c.jpeg)
+![image](https://user-images.githubusercontent.com/112539110/196103195-de649b04-ae2d-467a-8173-60962add971f.jpeg)
+![image](https://user-images.githubusercontent.com/112539110/196103250-3467d684-80cb-43e1-a2e3-3edce8552d49.jpeg)
+
+
+![image](https://user-images.githubusercontent.com/112539110/196103293-6dab15be-56a5-4e6f-aa6a-fad7318628c2.jpeg)
+
+
+![image](https://user-images.githubusercontent.com/112539110/196103944-eda73bd3-a43f-4315-8b76-6f6ecddcd2bd.jpeg)
+
+
+![image](https://user-images.githubusercontent.com/112539110/196104049-1b2b6185-f7c8-4f60-a398-61da17f2f91d.jpeg)
+![image](https://user-images.githubusercontent.com/112539110/196104130-ba4e95ab-2f6c-4e72-8f20-17ddcfb16f3e.jpeg)
